@@ -1,4 +1,4 @@
-# Sofa Insider Guy's Guide to Comfortable Sleeper Sofas
+# Sofa Insider Guy's Guide to Comfortable Sofas
 
 - [Why Are Sleeper Sofas Comfortable? - 6 Snuggle-Worthy Reasons](https://sofainsiderguy.com/are-sleeper-sofas-comfortable/)
 - [Best Affordable Sleeper Sofas: Power Up Your Home with 5 Top Picks](https://sofainsiderguy.com/best-affordable-sleeper-sofas/)
