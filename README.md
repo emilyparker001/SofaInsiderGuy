@@ -7,4 +7,5 @@
 - [Futons Or Sleeper Sofas: 5 Essential Easy Tips](https://sofainsiderguy.com/futons-or-sleeper-sofas/)
 - [Day Bed or Sofa Bed: 10 Transformative Comparison for Your Space's Comfortable Evolution](https://sofainsiderguy.com/day-bed-or-sofa-bed/)
 - [Best Affordable Sofa Bed:5 Find Comfort Without Breaking the Bank](https://sofainsiderguy.com/affordable-sofa-bed/)
+- [Are Sofa Bed Comfortable? Exploring 101 Guide](https://sofainsiderguy.com/are-sofa-bed-comfortable/)
   
